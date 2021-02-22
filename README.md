@@ -1,2 +1,3 @@
 # DA-1-QUESTION-2-
-![7](https://user-images.githubusercontent.com/36052802/108686596-a784d800-751b-11eb-853a-72c02b5a1691.png)
+![Screenshot 2021-02-22 173507](https://user-images.githubusercontent.com/36052802/108706253-56cda900-7534-11eb-934b-16a8a175d904.png)
+
